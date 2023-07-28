@@ -1,1 +1,1 @@
-I going to be gthe best SW developer
+I going to be the best SW developer
